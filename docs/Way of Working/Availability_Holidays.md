@@ -3,7 +3,7 @@
 ----
 
 **Assets**
-
+Ali: Jan 22, 23 full day + Jan 24 from 8am to 12:30pm 
 
 
 ----
